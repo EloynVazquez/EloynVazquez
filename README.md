@@ -1,6 +1,6 @@
 ### Hello world, I'm Eloyn 👋
 
-Profile views
+
 
 😊 About Me
 I am an enthusiastic data professional with a rich background in Mechanic Engineer, known for my dedication to precision, analytical acumen, and operational efficiency. With a proven ability to extract meaningful insights from varied data sets, I excel in enhancing decision-making processes and optimizing workflows. My expertise lies in data analysis tools and I am deeply committed to delivering impactful data-driven solutions. Besides my professional pursuits, I am passionate about discipline and exercise, believing that a strong body and mind are key to personal and professional success.
