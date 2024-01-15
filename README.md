@@ -1,7 +1,6 @@
 ### Hello world, I'm Eloyn 👋
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fpueblerino.info%2Fman-working-on-computer-gif&psig=AOvVaw1GiQaUa0me_QKbNN2v8s1q&ust=1705381628736000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJCJ_-TP3oMDFQAAAAAdAAAAABAm
-
+https://giphy.com/gifs/dog-work-computer-l0HU7hfo5w7WlSHC0/tile
 
 😊 About Me
 I am an enthusiastic data professional with a rich background in Mechanic Engineer, known for my dedication to precision, analytical acumen, and operational efficiency. With a proven ability to extract meaningful insights from varied data sets, I excel in enhancing decision-making processes and optimizing workflows. My expertise lies in data analysis tools and I am deeply committed to delivering impactful data-driven solutions. Besides my professional pursuits, I am passionate about discipline and exercise, believing that a strong body and mind are key to personal and professional success.
