@@ -1,6 +1,6 @@
 ### Hello world, I'm Eloyn 👋
 
-![image](https://github.com/EloynVazquez/EloynVazquez/assets/150309159/634b6ebe-b9d8-4c34-af8a-2a06aab4c7f1)
+![black-man-working-at-his-desk-stock-animation-96711-854x480](https://github.com/EloynVazquez/EloynVazquez/assets/150309159/4fee24eb-8505-4e6c-9df4-267806db1be8)
 
 
 😊 About Me
