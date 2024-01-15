@@ -1,6 +1,6 @@
 ### Hello world, I'm Eloyn 👋
 
-![image](https://github.com/EloynVazquez/EloynVazquez/assets/150309159/b5f03211-7f72-43c3-a8bc-20554cb9a0af)
+![image](https://github.com/EloynVazquez/EloynVazquez/assets/150309159/634b6ebe-b9d8-4c34-af8a-2a06aab4c7f1)
 
 
 😊 About Me
